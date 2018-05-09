@@ -1,3 +1,39 @@
+# reflection 4
+## 5/4/18
+
+Today i learned...
+
+Today i put more infomation into my google friday project.
+
+
+
+# reflection 3
+## 5/3/18
+
+Today i learned...
+
+Today i got the awards portion of my profile project done.
+
+
+
+# reflection 2
+## 5/2/18
+
+Today i have learned...
+
+Today i go the rank section of my profile project done.
+
+
+
+# reflection 1
+## 5/1/18
+
+Today i have learned...
+
+This week i have been working on my google friday and profile project.
+
+
+
 # reflection 10
 ## 4/26/18
 
