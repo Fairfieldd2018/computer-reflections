@@ -1,3 +1,11 @@
+# reflection 15
+## 5/11/18
+
+This week i learned...
+
+This week i learned many new things. I fisnished up my profile project on bootstap. As i worked on this project i saw how easy it was to use bootstap because it had most of the code for you you just had to type your own stuff. This week i also learned how to type javascript. I found it very interesting how you can makke madlibs using this. Right now i am working on making my mad libs. lso i have been working more no my google friday project more to improve it.o
+
+
 # reflection 14
 ## 5/4/18
 
