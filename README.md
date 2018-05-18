@@ -1,3 +1,9 @@
+# reflection 16
+##5/18/18
+
+This semester I learned...
+
+This semester i have learned a varitey of things. I learned how to use putty, upload things to github, index.html, and more. This semester i have completed a lot of projects. My favorite project that we have done would be the pizza project. My least favorite project that we have completed would be the javascript madlibs project. This class has showed me that codeing is more than what is looks like and is way harder than it looks. Overall I did enjoy this class but i do not hing i woud take another computer class.
 # reflection 15
 ## 5/11/18
 
